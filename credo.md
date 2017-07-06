@@ -12,6 +12,7 @@
 1. Wealth is not accumulated in the form of money, it's in love, health, and freedom. Optimise for those and money is irrelevant. 
 1. The mind and body are inextricably linked. Exercise and eat right, to be strong/fast/healthy, to serve those with less privlege.
 1. Get enough sleep to wake up early in the morning, and don't do anything useless throughout the day.
+1. Be suspicious of anything with a motor. A motor represents a shortcut to getting something done, but consider what you're shortcutting. [Muscle over motor](http://www.mrmoneymustache.com/2011/12/05/muscle-over-motor/) adds fun to your life while striping away the fat from your physique and your budget.  
 1. Turn off all screens/devices for a 24 hour period each week
 1. Always do your best.
 
